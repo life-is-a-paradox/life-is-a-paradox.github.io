@@ -1,4 +1,4 @@
-### 🌗 *Life is a Paradox* — A Poem by Monirul Islam
+### 🌗 *Life is a Paradox* — A Poem by Monir Islam
 
 > ***"Perspective shapes it, and situation defines it."***  
 > ***"For truth is not guaranteed by pain, nor is it denied by ease."***  
