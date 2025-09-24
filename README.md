@@ -12,5 +12,5 @@ To see the full poem, visit: [life-is-a-paradox.github.io](https://life-is-a-par
 
 **Bkash:** 🟠 *+8801926881981*
 
-☕ **You can buy me a coffee if you like that is!** ☕
+☕ **You can buy me a coffee if you like !** ☕
 
